@@ -13,5 +13,7 @@ Hobbies
 - Rap & RnB
 
 *Favorite Movie:* [Num Massacre](https://puppetcombo.fandom.com/wiki/Nun_Massacre)
-![alt text](https://www.imdb.com/es-es/title/tt0240772/mediaviewer/rm3370325760/?ref_=tt_ov_i)
+
+![https://www.imdb.com/es-es/title/tt13640132/?reasonForLanguagePrompt=browser_header_mismatch](NM.jpeg)
+
 Add your profile details here
