@@ -10,6 +10,6 @@ Hobbies
 - Sports
 - Rap & RnB
 
-*Favorite Movie:* [Num Massacre](https://puppetcombo.fandom.com/wiki/Nun_Massacre)
+*Favorite Videogame:* [Num Massacre](https://puppetcombo.fandom.com/wiki/Nun_Massacre)
 
 [![Nun Massacre](NM.jpeg)](https://puppetcombo.fandom.com/wiki/Nun_Massacre)
